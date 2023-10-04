@@ -1,5 +1,5 @@
 # 💫 About Me:
-🤖 AI and Machine learning is my passion<br>🤝 Looking for help with open source projects
+🤖 Ai enthusiast<br>🤝 Looking for help with open source projects
 
 
 # 📊 Stats:
